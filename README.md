@@ -1,2 +1,0 @@
-# TRUSTMARKET-AI-
-Hackathon 🚀 Semifinales
